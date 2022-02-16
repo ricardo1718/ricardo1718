@@ -1,2 +1,2 @@
 # ricardo1718
-git add README.md
+- I'm [Ricardo May](https://www.facebook.com/ricardo.may.334839) i liked to world of technology
